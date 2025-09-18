@@ -29,3 +29,5 @@ For a seamless experience, ensure you have the latest **DrugHub market online li
 <a href="http://drughub2pwzkzjtcuarf5p2f6sxmh7tjuiyw4uwcah4hjtf47oipciad.onion"><img src="/placeholders/capture.webp" alt="image" style="max-width: 100%;"><a>  
 
 Stay protected and verify your **DrugHub market online link** before proceeding. Safe browsing starts with trusted access.
+
+Update:  18.09.2025
