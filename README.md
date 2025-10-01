@@ -30,4 +30,6 @@ For a seamless experience, ensure you have the latest **DrugHub market online li
 
 Stay protected and verify your **DrugHub market online link** before proceeding. Safe browsing starts with trusted access.
 
-Update:  18.09.2025
+
+
+Update:  01.10.2025 Internal navigation
